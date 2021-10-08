@@ -1,1 +1,1 @@
-# taro-F-t-
+# taro-F(t)
